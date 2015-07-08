@@ -8,4 +8,4 @@
 
 ##III.
 ![Окно результата для задания 1.2]
-(http://cs624429.vk.me/v624429271/3da39/iOPBgLpoXF4.jpg)
+(http://cs624429.vk.me/v624429271/3da41/bZcULkrQ98A.jpg)
